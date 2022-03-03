@@ -1,3 +1,3 @@
-# Blooket-hacks
+Please wait...
 in the URL
 Javascript: (paste code)
