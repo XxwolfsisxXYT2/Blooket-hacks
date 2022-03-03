@@ -1,2 +1,2 @@
 # Blooket-hacks
-SUP MAN
+Javascript: (paste code)
